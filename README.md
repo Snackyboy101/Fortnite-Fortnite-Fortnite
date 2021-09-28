@@ -1,1 +1,1 @@
-Fortnite Fortnite lets go. I get it all night for show.
+In todays society, video games have become a staple in many peoples life.  The thing is many people are starting to get very bored of them.  The reason for this being that most video games now are just the same old copy of the games that came prior to it.
