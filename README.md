@@ -9,3 +9,7 @@
   Call of Duty Cold War was a game that was put out in November 13, 2020.  It was a game that had a lot of talk going into it, but when it came to the actual game it was nothing like what they said it would be.  I was someone who went through this as when I got the game and started to play it I was very much bored and dissapointed by it after 3 weeks.  I remember that before with old entries in the franchise they added enough content that it was enough to satisfy me and others till the next content drop was released.  They knew how to make enough content for the game, but with this entry to the series they failed to do that.  
 </p> 
 <h1> <strong>Repetition</strong></h1>
+<p>
+  In the past few years the most popular games out on the market have been battle royales.  Companies realize that these games are n at the moment as so they decide to make their own.  
+  https://www.metacritic.com/game/pc/call-of-duty-black-ops-cold-war
+  https://www.metacritic.com/game/playstation-4/call-of-duty-modern-warfare
