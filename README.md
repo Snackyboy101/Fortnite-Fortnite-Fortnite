@@ -14,5 +14,5 @@
   In the past few years the most popular games out on the market have been battle royales.  Companies realize that these games are in at the moment as so they decide to make their own.  From Fortnite, to Apex Legends, to Call of Duty Warzone.  Apex Legends is one where they aren't really suffering from this as they implemented something into the Battle Royale that was never really seen before.  They added things that helped them to have a game that would last for a while and make sure that they updated the game and release content.
   </p>
   <p align="left">
-<img width="300" height="168" src=https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQl1aABJZrfmdRrsvvr76Ni5Hxqc8F95j-pPA&usqp=CAU">
+<img width="300" height="168" src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQl1aABJZrfmdRrsvvr76Ni5Hxqc8F95j-pPA&usqp=CAU">
 </p> 
